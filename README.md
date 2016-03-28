@@ -1,4 +1,3 @@
-# imaginedragons
 
 Artist: Imagine Dragons
 Plaadifirma: KIDinaKORNER
